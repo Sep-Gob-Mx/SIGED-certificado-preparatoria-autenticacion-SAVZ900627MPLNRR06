@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-SAVZ900627MPLNRR06
+SAVZ900627MPLNRR06
